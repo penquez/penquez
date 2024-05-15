@@ -1,4 +1,4 @@
-***Bem vindo ao meu mundo terráqueos👽
+***Bem vindo ao meu mundo estranhos👽
 
 - Meu nome é Ana Beatriz❤️
 - Sou uma pessoa sonhadora que tenho varios sonhos e obejetivos para minha vida⭐
