@@ -5,5 +5,5 @@
 - Amo animais🐾
 - Aquele que me protege nunca dorme🤍
 - Tenho um grupo de três amigos que se chama NHEW🦎🌻
-- Amo ler(Trono de Vidro melhor coleção do mundo)📖
+- Amo ler,(Trono de Vidro melhor coleção do mundo)📖
 - ![](https://media1.tenor.com/m/6ECsVW78R7AAAAAC/tangled-rapunzel.gif)
